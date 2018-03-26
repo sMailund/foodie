@@ -10,7 +10,8 @@
 * 1 lb smoked sausage
 * 1⁄2 cup milk
 * 2 tablespoons butter
-## DirectionsPeel and dice potatoes and onions.
+## Directions
+0. Peel and dice potatoes and onions.
 1. Clean, trim and slice kale.
 2. Add the potatoes, onion, kale, a bay leaf, a pinch of salt and just enough water to cover all in a 3 qrt pan.
 3. Cover and boil gently for about 25 minutes.
