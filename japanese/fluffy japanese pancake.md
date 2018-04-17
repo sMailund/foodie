@@ -19,7 +19,7 @@ Ingredients for 3 pancakes ( 1 to 2 servings )
 * 1 heaping tablespoon(20g) sugar
 
 ## Instructions
-1. First, whisk together the egg yolk and sugar until pale. Add oil and milk in 3 times and whisk well each time.
+1. First, whisk together the egg yolk and sugar until pale. Add oil and milk in 3 times and whisk well each time. Use a whisk with thin wires, as thick wires will make a less airy batter.
 2. Shift together the flour and baking powder directly into a bowl and whisk well. You want to make sure the batter is sticky. We have to develop the gluten at this point and to hold lots of meringue adding later.
 3. Add a pinch of salt and a dash of vanilla paste and give it a good whisk. Set aside while we make meringue.
 4. Start whisking by using a hand mixer on low. When all the egg white becomes a form, add a half of granulated sugar. Keep whisking until the sugar dissolve and shiny, add the rest of the sugar. When all the sugar dissolves and meringue looks shiny, turn the speed to high and whisk until stiff peak forms. It’s going to take about 3 minutes.
