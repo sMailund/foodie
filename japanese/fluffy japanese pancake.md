@@ -1,6 +1,8 @@
 # Fluffy Japanese Pancakes
 By Princess Bamboo ([video](https://www.youtube.com/watch?v=Qarg7peLYr4))
 
+[alternative technique (to do)](https://www.youtube.com/watch?v=Ea6GMx8vxxg)
+
 Ingredients for 3 pancakes ( 1 to 2 servings )
 
 ## Ingredients
